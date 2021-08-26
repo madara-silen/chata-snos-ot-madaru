@@ -1,0 +1,1 @@
+# chata-snos-ot-madaru
